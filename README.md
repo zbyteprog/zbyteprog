@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... seeing the world through different lenses.
 - 🌱 I’m currently learning ... how to navigate with a new found appreciation.
 - 💞️ I’m looking to collaborate on ... all things...within reason.
-- 📫 How to reach me ... bradleyking0ne@gmail.com
+- 📫 How to reach me ... zbytezero@gmail.com
 - 😄 Pronouns: ... he/him, they/them
 - ⚡ Fun fact: ... I've survived a lot of things that some might consider luck or fate.
 
